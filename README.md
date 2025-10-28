@@ -1,2 +1,3 @@
 ПРОЕКТНАЯ РАБОТА ПО ЯП
-# OGUZKI
+
+AKHMETZYANOB RENAT KISP 9-22(1)
